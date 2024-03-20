@@ -2,7 +2,7 @@
 - 👀 I’m interested in Tech and Video Games
 - 🌱 I’m currently learning ASD (Analysis and Systems Development)
 - 💞️ I’m looking to collaborate on Web coding
-- 📫 How to reach me - Gmail (AnteaterOnComputer@Gmail.com
+- 📫 How to reach me - Gmail (AnteaterOnComputer@Gmail.com)
 - 😄 Pronouns: Any pronouns (Agender)
 - ⚡ Fun fact: Is a fucking animal in real life
 
